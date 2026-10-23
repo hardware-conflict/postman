@@ -1,11 +1,11 @@
 # postman
 
- ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤ𝓟ostman     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
+ ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤPostman     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
 
 <img width="1200" height="460" alt="131 Sem Título6_20260509130109" src="https://github.com/user-attachments/assets/6d530ae2-c743-45e5-96f1-af9adafc85d0" />
 
 
-  ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤ𝓐ny 𝓟rn     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
+  ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤAny Prn     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
 
  
 <img width="736" height="736" alt="doublezipper26_20260508195552" src="https://github.com/user-attachments/assets/6991a589-b809-4b44-98b3-b383fdd4862a" />
@@ -21,6 +21,8 @@
   ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤ1x1x1x1     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
 
   ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤgriefer     ♡  𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
+
+  ✚ ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞ ㅤ ྀི ◟ ͜ ◞ ྀིㅤ｡˙◞ ℘ㅤ Fangsworth ♡ 𓏼˚̣̣̣ | ͜͝ | ͜͝ |།†
 
 
   ✚  ◟ 𝜗℘ ‿ ᩼ 𓏼 ◞     ㅤabout me
